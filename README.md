@@ -1,2 +1,2 @@
 # TripleX
-Life time learner!
+YOU MAKE A MISTAKE, BE READY TO COMPANY ME AS JAIL PARTNER!
